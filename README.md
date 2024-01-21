@@ -18,3 +18,27 @@ Contributions are welcome! Here's how to contribute:
 3. Commit your Changes.
 4. Push to the Branch.
 5. Open a Pull Request.
+- **Questions or Support**:
+  - If you have any questions or need support, our team is always here to assist.
+  - Contact us through Telegram for prompt assistance.
+
+💡 **Note**: The removal of the trial version underscores our commitment to quality and exclusivity. Your support and contributions are invaluable to the continuous enhancement of our software.
+
+---
+
+🔗 **Buy Now**: [Donate Here](https://t.me/likhonsible)
+
+🙏 **Thank You for Believing in Our Vision and Supporting Our Journey!**
+
+- 🤖 **Telegram:** [Join Chat](https://t.me/ScriptsChats)
+- 🍃 **Author Updates:** [Follow Here](https://t.me/PikachuDirector)
+
+## Special Features 💎
+
+- **Transferrable**: Move it as you need.
+- **Splitable**: Divide easily.
+- **Swappable**: Exchange effortlessly.
+- **Flash Duration**: Control your timing.
+- **Tradable**: Freedom to trade.
+
+🙏 **Thank You for Believing in Us!** 💖
